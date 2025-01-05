@@ -1,1 +1,8 @@
-# Fisika-Kuantum
+Cara penggunaannya
+------
+------
+------
+-----
+------
+------
+------
